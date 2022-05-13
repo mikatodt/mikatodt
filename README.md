@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mikatodt
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning CAD
+- 📫 How to reach me mika.todt@ems-schiers.ch
